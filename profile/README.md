@@ -12,7 +12,7 @@ Unsere Mission ist es, die besten grabenlosen Sanierungstechnologien bereitzuste
 
 Für weitere Informationen oder Anfragen kontaktieren Sie uns bitte über unsere [Webseite](https://www.relineeurope.com/contact) oder folgen Sie uns auf unseren Social-Media-Kanälen:
 
-- [LinkedIn]([#](https://www.linkedin.com/company/relineeurope))
+- [LinkedIn](https://www.linkedin.com/company/relineeurope)
 - [Facebook](https://www.facebook.com/relineeurope)
 
 ## AGB
